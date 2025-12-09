@@ -3,22 +3,23 @@
  
 <p align="Center"> Matrix System!
 
-Freq Fronters include: Wes (Albert), Scott, 12, Bucky, Quill, SpringTrap aka Will.
+**Freq Fronters include:**<br/>
+Wes (Albert), Scott, 12, Bucky, Quill, SpringTrap aka Will.<br/>
 
 **If You're unsure who's fronting:**<br/>
-Calling us Wes or Wessa (IF WE'RE FRIENDS) is fine. 
-He/Him or They/Them pronouns are fine **unless told differently**.
+Calling us Wes or Wessa (IF WE'RE FRIENDS) is fine. <br/>
+He/Him or They/Them pronouns are fine **unless told differently**.<br/>
 
-**Other Things To Note:** </div>
+**Other Things To Note:** <br/>
 Usually, but not always, we'll have a link that isn't 'EscortingMen' if someone else is fronting. If that person doesn't have their own link then this one will be used.
-Usually Scott and Albert front together. 
-We don't want to interact with other people 'just because we're systems' ...We do find it odd.
-Depending on who's fronting they may use I/Me or We/Us.
-Don't try to roleplay with us...It's incredibly weird to try to roleplay with systems.
-We usually don't put SYS or INTRJ in our names because of how weird people on PT can be. 
+Usually Scott and Albert front together. <br/>
+We don't want to interact with other people 'just because we're systems' ...We do find it odd.<br/>
+Depending on who's fronting they may use I/Me or We/Us.<br/>
+Don't try to roleplay with us...It's incredibly weird to try to roleplay with systems.<br/>
+We usually don't put SYS or INTRJ in our names because of how weird people on PT can be. <br/>
 
-<p align="Center"> <a href="https://pluralkit.xyz/f/gyrxgj">Click Here If You Want To Know Who's Fronting Right Now.</a> 
-<p align="Center">   Disclaimer: THIS MAY NOT ALWAYS BE UPDATED!!
+<p align="Center"> <a href="https://pluralkit.xyz/f/gyrxgj">Click Here If You Want To Know Who's Fronting Right Now.</a> <br/>
+<p align="Center">   Disclaimer: THIS MAY NOT ALWAYS BE UPDATED!!<br/>
 
 
 <p align="Center">  
