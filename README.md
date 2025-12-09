@@ -17,7 +17,8 @@ Depending on who's fronting they may use I/Me or We/Us.
 Don't try to roleplay with us...It's incredibly weird to try to roleplay with systems.
 We usually don't put SYS or INTRJ in our names because of how weird people on PT can be. 
 
-<p align="Center"> <a href="https://pluralkit.xyz/f/gyrxgj">Click Here If You Want To Know Who's Fronting Right Now.</a>
+<p align="Center"> <a href="https://pluralkit.xyz/f/gyrxgj">Click Here If You Want To Know Who's Fronting Right Now.</a> 
+<p align="Center">   Disclaimer: THIS MAY NOT ALWAYS BE UPDATED!!
 
 
 <p align="Center">  
