@@ -23,7 +23,8 @@ We usually don't put SYS or INTRJ in our names because of how weird people on PT
 
 
 <p align="Center">  
- ![6c936f327435f52b5391b5fafa3ec657](https://github.com/user-attachments/assets/85a85cf0-ef93-42ae-8fe5-ba0dc7b9bdc3)
+
+ ![6c936f327435f52b5391b5fafa3ec657](https://github.com/user-attachments/assets/85a85cf0-ef93-42ae-8fe5-ba0dc7b9bdc3) 
 
  
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rxjagkmip1jrr6iilfjnj8k22&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=95465e&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=rxjagkmip1jrr6iilfjnj8k22&redirect=true)
