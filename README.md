@@ -9,7 +9,7 @@ Freq Fronters include: Wes (Albert), Scott, 12, Bucky, Quill, SpringTrap aka Wil
 Calling us Wes or Wessa (IF WE'RE FRIENDS) is fine. 
 He/Him or They/Them pronouns are fine **unless told differently**.
 
-**Other Things To Note:** 
+**Other Things To Note:** </div>
 Usually, but not always, we'll have a link that isn't 'EscortingMen' if someone else is fronting. If that person doesn't have their own link then this one will be used.
 Usually Scott and Albert front together. 
 We don't want to interact with other people 'just because we're systems' ...We do find it odd.
