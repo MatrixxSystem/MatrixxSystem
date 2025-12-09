@@ -5,7 +5,7 @@
 
 Freq Fronters include: Wes (Albert), Scott, 12, Bucky, Quill, SpringTrap aka Will.
 
-**If You're unsure who's fronting:**
+**If You're unsure who's fronting:**<br/>
 Calling us Wes or Wessa (IF WE'RE FRIENDS) is fine. 
 He/Him or They/Them pronouns are fine **unless told differently**.
 
